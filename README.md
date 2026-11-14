@@ -16,4 +16,4 @@
 ***Their determination shatters the Anti-Spiral dimension.***
 ***The Anti-Spirals are defeated, and the universe is saved. Nia, however, was created by Anti-Spiral power. With their defeat, her body begins to fade. She and Simon share a quiet, bittersweet wedding, and then she disappears, leaving Simon alone but proud of the world they saved together.***
 
-***Years later, Simon wanders the world as a humble traveler. Humanity thrives among the stars, guided by the legacy of Team Dai-Gurren. Simon smiles, knowing that the future belongs to those who keep moving forward.**
+***Years later, Simon wanders the world as a humble traveler. Humanity thrives among the stars, guided by the legacy of Team Dai-Gurren. Simon smiles, knowing that the future belongs to those who keep moving forward.***
